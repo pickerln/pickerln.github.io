@@ -1,3 +1,3 @@
-# yusuke-nojima.github.io
+# lynn-pickering.github.io
 
-Access [https://yusuke-nojima.github.io](https://yusuke-nojima.github.io)
+Access [https://lynn-pickering.github.io](https://lynn-pickering.github.io)
